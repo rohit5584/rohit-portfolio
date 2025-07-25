@@ -12,7 +12,7 @@ strong track record of aligning projects with critical automotive standards such
 </p>
 
 ## 📄 Latest CV  
-[**Download CV (PDF)**](https://github.com/rohit5584/rohit-portfolio/blob/main/CV_Rohit_Kumar_Rai_EU.pdf)
+[**Download CV (PDF)**](https://github.com/rohit5584/rohit-portfolio/blob/main/CV_Rohit_Kumar_Rai.pdf)
 
 ---
 
